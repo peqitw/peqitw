@@ -5,5 +5,5 @@
   <img alt="" src= https://files.catbox.moe/rc6axb.png>
 </div>
 <div align="center"> 
- art by @witchberries on twt
+ art by my chud of a bf @witchberries on twt
 </div> 
